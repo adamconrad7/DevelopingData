@@ -1,1 +1,0 @@
---- title: public archive of ideas ---
